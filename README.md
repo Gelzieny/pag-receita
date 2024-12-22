@@ -1,0 +1,1 @@
+[Figma](https://www.figma.com/design/wUDGqVhOdWPfSFT6DUcHKu/P%C3%A1gina-de-receita-(Community)?node-id=0-1&p=f&t=pr45E0dzAGOSNviM-0)
